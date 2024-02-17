@@ -1,18 +1,14 @@
 
 <p align="center">
-  <img width="900" height="60" src="https://github.com/mrshowtiime/mrshowtiime/assets/139925106/3b0b6abe-c2fe-4ef4-b80f-57e6ffd35bd3">
+  <img width="900" height="60" src="https://github.com/mrshowtiime/mrshowtiime/assets/139925106/3503f6bd-fce6-4693-843d-0eea5bdb893d">
 </p>
 <p align="center">
-  <img width="900" height="60" src="https://github.com/mrshowtiime/mrshowtiime/assets/139925106/6b1c5f1f-04e3-4b3f-a364-7d95f030fd88">
+  <img width="540" height="310" src="https://github.com/mrshowtiime/mrshowtiime/assets/139925106/899ab07d-97ef-4b45-aa11-598a089399d8">
 </p>
-
+<p>
 <p align="center">
-  <img width="540" height="310" src="https://github.com/mrshowtiime/mrshowtiime/assets/139925106/e08c1f06-bc0a-4225-8dd0-998cff1dbe18">
+  c+h welcome anytime when afk ^_^
 </p>
-
 <p align="center">
-  <img width="900" height="60" src="https://github.com/mrshowtiime/mrshowtiime/assets/139925106/6b1c5f1f-04e3-4b3f-a364-7d95f030fd88">
-</p> 
-<p align="center">
-  <img width="900" height="60" src="https://github.com/mrshowtiime/mrshowtiime/assets/139925106/f432a78e-95c7-4801-9e5a-057947ee8435">
+  <img width="900" height="60" src="https://github.com/mrshowtiime/mrshowtiime/assets/139925106/e1fbc8b0-280f-4c09-9a5c-1c59f4e4db1f">
 </p>
