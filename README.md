@@ -3,7 +3,7 @@
   <img width="900" height="60" src="https://github.com/worIdfuturestar/worIdfuturestar/assets/139925106/ad32e556-454a-4c22-aab3-843c7f8f31b8">
 </p>
 <p align="center">
-  <img width="265" height="265" src="https://file.garden/ZcL-MjRVyFfOaPxj/imageedit_5_6967649606.jpg">
+  <img width="265" height="265" src="https://file.garden/ZcL-MjRVyFfOaPxj/imageedit_3_9200076444.jpg">
 </p>
 <p>
 <p align="center">
