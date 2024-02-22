@@ -1,9 +1,9 @@
 
 <p align="center">
-  <img width="900" height="60" src="https://github.com/mrshowtiime/mrshowtiime/assets/139925106/3503f6bd-fce6-4693-843d-0eea5bdb893d">
+  <img width="900" height="60" src="https://github.com/worIdfuturestar/worIdfuturestar/assets/139925106/ad32e556-454a-4c22-aab3-843c7f8f31b8">
 </p>
 <p align="center">
-  <img width="540" height="310" src="https://github.com/mrshowtiime/mrshowtiime/assets/139925106/899ab07d-97ef-4b45-aa11-598a089399d8">
+  <img width="540" height="310" src="https://file.garden/ZcL-MjRVyFfOaPxj/imageedit_3_9200076444.jpg">
 </p>
 <p>
 <p align="center">
