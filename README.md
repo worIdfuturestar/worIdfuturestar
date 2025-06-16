@@ -1,6 +1,9 @@
 
 <p align="center">
-  <img width="900" height="60" src="https://github.com/worIdfuturestar/worIdfuturestar/assets/139925106/ad32e556-454a-4c22-aab3-843c7f8f31b8">
+  <img width="900" height="100" src="https://file.garden/ZcL-MjRVyFfOaPxj/tumblr_43bd36f6911c2c00b93806cabb98a4a5_d078a285_400.png">
+</p>
+<p align="center">
+  <img width="900" height="30" src="https://file.garden/ZcL-MjRVyFfOaPxj/tumblr_4b5597233e60f285ff2de0dcf3a7c50d_5d4a8536_2048.png">
 </p>
 <p align="center">
   <img width="600" height="200" src="https://file.garden/ZcL-MjRVyFfOaPxj/FxeftC4aEAAWO0B.jpg">
@@ -17,5 +20,8 @@ promise im nice!! you can try <br />
   from my computer or offtab.  
 </p>
 <p align="center">
-  <img width="900" height="60" src="https://file.garden/ZcL-MjRVyFfOaPxj/Untitled2425_20230708184658%20(1).png">
+  <img width="900" height="30" src="https://file.garden/ZcL-MjRVyFfOaPxj/tumblr_4b5597233e60f285ff2de0dcf3a7c50d_5d4a8536_2048.png">
+</p>
+<p align="center">
+  <img width="900" height="100" src="https://file.garden/ZcL-MjRVyFfOaPxj/tumblr_b6eacae05a1d2a087d54f64555163d9e_88b19eff_540.png">
 </p>
