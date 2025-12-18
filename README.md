@@ -5,12 +5,6 @@
 </p>
 <p>
 <p align="center">
-  c+h welcome anytime when afk ^_^<br /> 
+  hi guys i kidna lurk 
 </p>
-<p align="center">
-feel free to interact, i <br />
-promise im nice!! you can try <br />
-  to w2i if im afk but no promises <br />
-  ill respond, as i might be away <br />
-  from my computer or offtab.  
 </p>
