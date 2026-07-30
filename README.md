@@ -5,6 +5,6 @@
 </p>
 <p>
 <p align="center">
-  hi guys i kidna lurk 
+  that ONE guy whos occasionally on ponytown and will NOT stop talking to random people
 </p>
 </p>
