@@ -6,6 +6,9 @@
 <p>
 <p align="center">
   that ONE guy whos occasionally on ponytown and will NOT stop talking to random people
+</p>
+<p>
+<p align="center">
   if you like les mis please talk to me about les mis. pls
 </p>
 </p>
