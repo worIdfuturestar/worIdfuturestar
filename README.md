@@ -5,7 +5,7 @@
 </p>
 <p>
 <p align="center">
-  that ONE guy whos occasionally on ponytown and will NOT stop talking to random people
+  that ONE guy whos occasionally on ponytown and will NOT stop talking to random people. c+h whenever
 </p>
 <p>
 <p align="center">
